@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: raguel sianipar
 
-NIM : 
+NIM : 607062400087
 
 ## Instruksi
 
